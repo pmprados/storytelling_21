@@ -6,11 +6,11 @@ Actividades y trabajos prácticos de la asignatura de **Creación y Difusión de
 Facultad de Comunicación y Documentación, Universidad de Granada 
 
 ### Grupo 2. Coven. 🧙🏻‍♀️🔮 📿 🧿
-👒 Ana Arquelladas Nicolás. 	
+👒 Ana Arquelladas Nicolás. 
 
-👀 Luna Linares López. 	
+👀 Luna Linares López. 
 
-👃 Pablo Medina Prados.	
+👃 Pablo Medina Prados. 
 
 👄 Javier Valero Hernández.	
 
