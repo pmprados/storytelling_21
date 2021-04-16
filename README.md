@@ -5,6 +5,31 @@ Actividades y trabajos prácticos de la asignatura de **Creación y Difusión de
 
 Facultad de Comunicación y Documentación, Universidad de Granada 
 
+### Sinopsis:
+
+Astarte, una chica joven rechazada por la sociedad, decidiendo abandonar su ciudad natal, junto a su cuervo Mot. Ambos huyen tras ser juzgados por los vecinos y vecinas de Astarte, al ser ella una bruja. Decide marcharse a Kea, una pequeña isla en la que decide perfeccionar su conocimiento, habilidades y encontrarse consigo misma.
+
+### Personaje:
+
+
+
+
+### Conflicto:
+
+Enlace a test interactivo: https://h5p.org/node/1112963
+
+Enlace a teaser/banner: 
+
+Enlace a Storytelling: 
+
+
+
+
+
+
+
+
+
 
 ### Qué es storytelling?  
 
