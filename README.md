@@ -5,7 +5,7 @@ Actividades y trabajos prácticos de la asignatura de **Creación y Difusión de
 
 Facultad de Comunicación y Documentación, Universidad de Granada 
 
-### Grupo 2. Coven. ![image](https://user-images.githubusercontent.com/79904490/115052479-473c6200-9ede-11eb-8a88-36cfe01b13a6.png)
+### Grupo 2. Coven. 🧙🏻‍♀️🔮 📿 🧿
 
 
 
