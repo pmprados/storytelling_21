@@ -13,6 +13,7 @@ Facultad de Comunicación y Documentación, Universidad de Granada
 Astarte, una chica joven rechazada por la sociedad, decidiendo abandonar su ciudad natal, junto a su cuervo Mot. Ambos huyen tras ser juzgados por los vecinos y vecinas de Astarte, al ser ella una bruja. Decide marcharse a Kea, una pequeña isla en la que decide perfeccionar su conocimiento, habilidades y encontrarse consigo misma.
 
 ### Personaje:
+![image](https://user-images.githubusercontent.com/79904490/115052268-0cd2c500-9ede-11eb-9cfb-edf332360345.png)
 
 
 
